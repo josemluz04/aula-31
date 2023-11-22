@@ -1,1 +1,1 @@
-# loja material de construçao
+# loja de produtos eletrônicos 
